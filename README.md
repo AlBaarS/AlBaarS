@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AlBaarS
-- 👀 I’m interested in videogames, cooking, biology, history, and Dungeons & Dragons
+- 👀 I’m interested in biology, history, videogames, cooking, and Dungeons & Dragons
 - 🌱 I’m currently doing the Master programme Bioinformatics & Biocomplexity in Utrecht, The Netherlands
 - 💞️ I’m not looking to collaborate (per se)
 - 📫 How to reach me: alebaars_98@outlook.com
